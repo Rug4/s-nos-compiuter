@@ -1,0 +1,1 @@
+# s-nos-compiuter
